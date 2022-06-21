@@ -1,0 +1,1 @@
+ Well-traveled, determined, and curious developer who is confident in my ability to learn and collaborate within a team. Along with the ability to be business-savvy with collectively three years of experience in digital design and project management, I am looking to contribute a new outlook, creativity, and finding solutions, while working in a collaborative work environment.
